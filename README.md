@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Mariana Ildefonso
+- 👋 Hi, I’m Mariana I.
 - 👀 I’m interested in Chemistry, engineering and space exploration 
-- 🌱 I’m currently learning chemical engineering
+- 🌱 I’m currently studying chemical engineering
 - 📫 How to reach me @mars.ildefonso on instagram
 - ⚡ Fun fact: I´m a natural blonde and my fav animals are snails!
 
