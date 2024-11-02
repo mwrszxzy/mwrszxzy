@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mariana I.
+- 👋 Hi, I’m Mariana, but you can call me Mars ☄️
 - 👀 I’m interested in Chemistry, engineering and space exploration 
 - 🌱 I’m currently studying chemical engineering
 - 📫 How to reach me @mars.ildefonso on instagram
